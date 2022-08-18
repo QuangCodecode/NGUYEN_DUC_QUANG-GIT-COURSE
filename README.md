@@ -1,1 +1,1 @@
-# NGUYEN_DUC_QUANG-GIT-COURSE
+# homework-week-no-1
